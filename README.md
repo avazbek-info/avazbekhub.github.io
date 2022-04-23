@@ -1,1 +1,0 @@
-# avazbekhub.github.com
